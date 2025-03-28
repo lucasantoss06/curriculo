@@ -19,10 +19,15 @@ Formação Acadêmica:
 
 Experiência Profissional: Loja Luani Ateliê e Boutique 
 – Jan/2019 a Dez/2019 
-● Cargo: Auxiliar de Loja Responsabilidades: 
+● Cargo: Auxiliar de Loja
+
+Responsabilidades: 
 ○ Utilização de sistema de ponto de venda para registrar vendas e controlar estoque. ○ Atualização e organização de dados de produtos no computador (preços, descrição e quantidade). 
+
 ○ Apoio na organização de pedidos de clientes 
+
 ○ Atendimento ao cliente, tanto presencial quanto digital, auxiliando na escolha de produtos e efetuando a finalização das compras no sistema. 
+
 ○ Utilização de ferramentas de gestão de redes sociais para promover produtos e interagir com clientes online. 
 
 
